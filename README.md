@@ -6,3 +6,6 @@ Projemizin temeli, depremden etkilenen ve yardıma ihtiyacı olan insanların ac
 
 ![246653700-eea2c3bb-d7f0-49f4-b893-7cf8abe5ecba](https://github.com/sekiilkay/BAYA/assets/103059048/ecbefafe-2537-43e9-9e23-ee0889e8189a)
 
+![246653662-5f50c332-c3e0-4109-885f-effb6848ea99](https://github.com/sekiilkay/BAYA/assets/103059048/ce67c18a-91ea-444f-bb3f-757a8d1f92c9)
+
+![246653671-3aedede4-3060-48e8-b558-16793972e385](https://github.com/sekiilkay/BAYA/assets/103059048/6929b5b9-5b6f-4e58-8674-5f57eb652fde)
